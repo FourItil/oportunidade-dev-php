@@ -2,7 +2,9 @@
 
 ### Informações básicas
 Jornada: Seg/Sex 8h diárias
+
 Salário: A combinar
+
 Local de trabalho: Curitiba - PR
 
 ### Requisitos
